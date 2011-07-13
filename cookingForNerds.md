@@ -12,7 +12,7 @@
 * 4 El Milch
 
 ## Reibekuchen
-* 2.5 kg Kartoffeln
+* 1.5 kg Kartoffeln
 * Eine Zwiebel
 * Zwei Eier
 * Zwei Eßlöffel Mehl
@@ -21,3 +21,9 @@
 * Pfeffer
 
 Kartoffeln reiben. Saft auspressen. Mit den restlichen Zutaten mischen. In Sonnenblumenöl anbraten. 4 Personen werden ernährt.
+
+## Rotebeeteaufstrich
+* Meerretich
+* Rotebeete
+* Sonnenblumenkerne
+* Zitrone
