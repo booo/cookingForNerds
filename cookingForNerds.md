@@ -27,3 +27,10 @@ Kartoffeln reiben. Saft auspressen. Mit den restlichen Zutaten mischen. In Sonne
 * Rotebeete
 * Sonnenblumenkerne
 * Zitrone
+
+## Pfannekuchen (Eierkuchen)
+* 200g Mehl
+* 1/2 l Milch
+* 3 Eier
+
+Reihenfolge: Eier, Mehl, Milch
