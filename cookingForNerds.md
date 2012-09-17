@@ -22,6 +22,42 @@
 
 Kartoffeln reiben. Saft auspressen. Mit den restlichen Zutaten mischen. In Sonnenblumenöl anbraten. 4 Personen werden ernährt.
 
+## Mürbe-, Auslege- und Sandteig
+
+Nach Bocuse gibt es vier Arten:
+
+### Feiner Auslegeteig
+* 500 g Mehl
+* 10 g Salz
+* 1 TL Zucker
+* 300 g Butter
+* 1 Ei
+* 2-3 EL Milch
+
+### Einfacher Auslegeteig
+* 500 g Mehl
+* 10 g Salz
+* 1 TL Zucker
+* 250 g Butter
+* 1/10 l Wasser
+
+### Sehr feiner Auslege- oder Sandteig
+* 500 g Mehl
+* 10 g Salz
+* 15 g Zucker
+* 375 g Butter
+* 2 Eier
+* einige EL Milch
+
+### Königlicher Auslege- oder Sandteig
+* 500 g Mehl
+* 10 g Salz
+* 15 g Zucker
+* 500 g Butter
+* 4 Eigelb
+* 6 EL Milch oder besser dicke Sahne (crème fraîche)
+
+
 ## Rotebeeteaufstrich
 * Meerretich
 * Rotebeete
