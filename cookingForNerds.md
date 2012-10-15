@@ -98,3 +98,13 @@ In den Ofen damit!
 Buchweizen rösten, Kartoffeln++ kochen. Alles grob manschen. Ei oder Ei-Ersatz zu geben. In die Pfanne. Praten.
 Dann zwischen zwei Weißbrothälften gepackt mit Salat usw. gibt einen Burger.
 
+
+## Béchamelsauce
+
+* 100 g Butter
+* 100 g Mehl
+* Milch
+* Salz, Pfeffer, Muskat (Herr Müller!)
+
+Butter schmelzen, Mehl hinzugeben und Milch einrühren bis gewünschte Konsistenz
+erreicht. Würzen!
