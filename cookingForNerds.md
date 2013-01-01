@@ -1,3 +1,17 @@
+## Mousse au Chocolat
+
+* 200 g bittere Schokolade
+* 5 El starken, gekochten Kaffee
+* 5 Eier
+* 1/4 l Sahne
+* 4 El Vanillezucker
+
+Schokolade zusammen mit dem Kaffee schmelzen. Schokolade abkühlen lassen. Eiweiß
+zu Schnee schlagen. Eigelb mit Vanillezucker schaumig rühren. Sahne steif
+schlagen. Optinal Cognac oder Orangen-Likör zum Eigelb geben. Eigelb in die
+Schokolade geben. Als nächstes die Schlagsahne unterheben, gefolgt vom Eischnee.
+Mindestens zwei Stunden im Kühlschrank erstarren lassen. Form abdecken!
+
 ## Marmorkuchen
 
 * 250 g Butter
