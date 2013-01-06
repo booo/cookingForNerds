@@ -131,3 +131,14 @@ erreicht. Würzen!
 * Sellerie
 * Hackfleisch, Wurststücke oder Tofu
 * Olivenöl, Salz, Pfeffer, Ital. Kräuter
+
+## Fliegefisch-Lachs Burger
+
+* 200 g Tofu (geräuchert)
+* 6 Möhren
+* 1 (rote) Paprika
+* 4 El Mehl
+* Salz, Pfeffer
+
+Möhren raspeln. Tofu zerbröseln. Paprika klein machen (raspeln?). Alles
+vermengen und mit dem Mehl andicken. Würzen, brutzeln, fertig!
