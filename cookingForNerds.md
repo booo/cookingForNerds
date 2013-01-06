@@ -122,3 +122,12 @@ Dann zwischen zwei Weißbrothälften gepackt mit Salat usw. gibt einen Burger.
 
 Butter schmelzen, Mehl hinzugeben und Milch einrühren bis gewünschte Konsistenz
 erreicht. Würzen!
+
+## Sugo (ital. Saft, Sauce)
+
+* Frische Tomaten
+* Zwiebeln
+* Möhren
+* Sellerie
+* Hackfleisch, Wurststücke oder Tofu
+* Olivenöl, Salz, Pfeffer, Ital. Kräuter
