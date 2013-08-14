@@ -71,6 +71,33 @@ Nach Bocuse gibt es vier Arten:
 * 4 Eigelb
 * 6 EL Milch oder besser dicke Sahne (crème fraîche)
 
+## Lauch-Quiche
+
+* Zwei Stangen Lauch
+* Ein bis zwei Tomaten
+* Ein Stück Gouda
+* (Speck)
+
+Einen Mürbeteig vorbereiten, ausrollen und in eine Form geben. (Speck und) Lauch
+in der Pfanne anbraten und in die Form geben. Tomatenscheiben auf dem Lauch
+verteilen. Großzügig Gouda auf der Oberfläche verteilen. In den Ofen geben und
+auf gold-braune Oberfläche warten.
+
+## Sauerkraut-Quiche
+
+* Sauerkraut
+* Crème fraîche
+* Ei
+* Apfel
+* (Speck)
+* Zwiebel
+* Gouda
+
+Einen Mürbeteig vorbereiten, ausrollen und in eine Form geben. (Speck und)
+Zwiebel anbraten, Sauerkraut hinzugeben und andünsten. Apfel in Stücken
+hinzugeben. Gedünstetes Sauerkraut in die Form geben. Ei und Crème fraîche
+verrühren und mit dem Sauerkraut in der Form vermischen. Sauerkraut großzügig
+mit Gouda abdecken. In den Ofen geben und auf gold-braune Oberfläche warten.
 
 ## Rotebeeteaufstrich
 * Meerretich
