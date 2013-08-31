@@ -25,6 +25,17 @@ Mindestens zwei Stunden im Kühlschrank erstarren lassen. Form abdecken!
 * 20 g Kakao
 * 4 El Milch
 
+## Schokoladentarte
+
+* 500g Kuvertüre
+* 400g Butter
+* 10 Eier
+* 70g Zucker
+
+Kuvertüre in Butter schmelzen. Eier und Zucker 10 minuten verrühren.
+Kuvertüre unterheben und in die Form geben. Bei 180 Grad 30 Minuten in den
+Backofen.
+
 ## Reibekuchen
 * 1.5 kg Kartoffeln
 * Eine Zwiebel
