@@ -130,6 +130,24 @@ Reihenfolge: Eier, Mehl, Milch
 
 Nudeln heiß, Pesto rauf.
 
+## Pesto Rosso
+
+* 25% getrocknete Tomaten
+* 25% Sonnenblumenöl
+* 21% Tomatenmark doppelt konzentriert
+* Glükosesirup
+* 5% Grana Padano
+* 3.5% Cashewkerne
+* Salz
+* 2.6% Basilikum
+* Bambusfasern
+* Balsamiko
+* 1.1% Picorino Romano
+* Zucker
+* Reismehl
+* 0.3% Knoblauch
+* Zitronensäure
+
 ## Ofengemüse
 
 * Gemüse (z.B. gute Mischung: Süßkartoffeln, Karotten, Pastinaken, Zucchini)
@@ -180,3 +198,5 @@ erreicht. Würzen!
 
 Möhren raspeln. Tofu zerbröseln. Paprika klein machen (raspeln?). Alles
 vermengen und mit dem Mehl andicken. Würzen, brutzeln, fertig!
+
+
