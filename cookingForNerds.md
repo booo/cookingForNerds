@@ -199,4 +199,17 @@ erreicht. Würzen!
 Möhren raspeln. Tofu zerbröseln. Paprika klein machen (raspeln?). Alles
 vermengen und mit dem Mehl andicken. Würzen, brutzeln, fertig!
 
+# Spinatknödel
 
+* 250g Knödelbrot
+* 125ml Milch
+* 2 Eier
+* 50g Käse
+* 250g passierter Spinat
+* 80g Butter
+* 120g Zwiebeln (aka. zwei)
+* 15g Knoblauch
+
+Knödelbrot in warmer Milch einweichen. Ruhen lassen. Gequirlte Eier hinzugeben.
+Käse und Spinat untermischen. Angebratene Zwiebeln hinzugeben. 30 Minuten ruhen
+lassen und dann in kochendem Wasser 25 Minuten garen.
