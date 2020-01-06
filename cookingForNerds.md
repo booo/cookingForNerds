@@ -213,3 +213,19 @@ vermengen und mit dem Mehl andicken. Würzen, brutzeln, fertig!
 Knödelbrot in warmer Milch einweichen. Ruhen lassen. Gequirlte Eier hinzugeben.
 Käse und Spinat untermischen. Angebratene Zwiebeln hinzugeben. 30 Minuten ruhen
 lassen und dann in kochendem Wasser 25 Minuten garen.
+
+# Semmelknödel
+
+* 5 Semmeln
+* 2 Eier
+* Salz
+* Pfeffer
+* 250 ml Milch
+* 3-4 kleine Zwiebeln
+* Butter
+
+Semmeln in kleine Stücke schneiden. Milch erhitzen und die Semmeln in der Milch
+einweichen. Eier quirlen und zu den Semmeln geben. Zwiebeln fein schneiden und
+in Butter braun werden lassen. Abgekühlte Zwiebeln zum Knödelteig hinzugeben.
+Würzen mit Salz, Pfeffer (und Petersilie, Schnittlauch?). Ca. 6 Knödel formen
+und in leicht kochendem, gesalzenem Wasser 20 Minuten ziehen lassen.
